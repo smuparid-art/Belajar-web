@@ -1,1 +1,0 @@
-usahatelurku
